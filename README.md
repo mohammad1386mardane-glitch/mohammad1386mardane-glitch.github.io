@@ -1,1 +1,1 @@
-https://github.com/mohammad1386mardane-glitch/mohammad1386mardane-glitch.github.io
+https://mohammad1386mardane-glitch.github.io
